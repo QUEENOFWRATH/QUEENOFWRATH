@@ -5,4 +5,4 @@ QUEENOFRAGE is PonyTowns Miu iruma!
 
  • Current Profile Theme : Hange Zoe (AOT)
 
-| Tomboy | Artist and Writer | ENTP | 
+| Tomboy | Artist and Writer | ENTP 7w8 | 
